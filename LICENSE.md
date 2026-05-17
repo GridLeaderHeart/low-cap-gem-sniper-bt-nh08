@@ -1,4 +1,4 @@
-# 
+# automatic bot de ataque sanduiche plugins é o melhor bot de ataque sanduiche plugins com gerenciamento de listas de snipe e detecção de novos tokens. Seguro, confiável e otimizado
 
 
 
